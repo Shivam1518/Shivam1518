@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Blockchain Project <br>🌱 I’m currently learning Android<br>💬 Ask me about Canva, Figma, PPT's, eSports<br>⚡ Fun fact
+🔭 I’m currently working on Blockchain Project <br>🌱 I’m currently learning Android<br>💬 Ask me about Canva, Figma, PPT's, eSports<br>
 
 
 ## 🌐 Socials:
